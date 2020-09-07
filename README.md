@@ -1,1 +1,0 @@
-# sqxcubkq.github.io
